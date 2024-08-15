@@ -1,12 +1,11 @@
-## Boas vinda  a o  meu perfil 🇧🇷🥇
+## Boas vinda  a o  meu perfil 🇧🇷🥇🪶
 
-meu nome e igor 
 
-e gosto muito de futebol ⚽🥇
+meu nome é igor 
 
-e gosto muito do Neymar 
+- e gosto muito de futebol ⚽🥇
+- Atleta
+- Idolo neymar 🥶
 
-![](https://media1.tenor.com/m/2eWC-i5x54IAAAAd/neyney-neymar.gif)
 
-https://media1.tenor.com/m/2eWC-i5x54IAAAAd/neyney-neymar.gif
-
+![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
