@@ -5,10 +5,10 @@ meu nome é igor
 
 - e gosto muito de futebol ⚽🥇
 - Atleta
-- Idolo neymar 🥶
+- Idolo mia kalifa 🥶
 
 
-![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
+![](https://media1.tenor.com/m/SbSJe4tdyvIAAAAC/miranda-garcia-hernandez-mia-khalifa.gif)
 
 
 
